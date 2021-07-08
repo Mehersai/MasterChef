@@ -1,0 +1,1 @@
+take a bowl and eggs and flour and mix well. Then you put in sugar and the coco powder. Then you get the baking soda and baking powder and then mix well. Then you have to get the vanilla extract pour a little drop and mix well. Finally you put it in the oven bowl and put it int he oven and wait.
